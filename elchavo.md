@@ -2,5 +2,8 @@
 
 1. El Chavo
 2. kiko
-3. la chilindrina
-4. ñoño
+3. La Chilindrina
+4. Ñoño
+5. Godines
+6. La Popi
+7. La Pati
